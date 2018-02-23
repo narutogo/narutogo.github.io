@@ -1,0 +1,1 @@
+# narutogo.github.io
